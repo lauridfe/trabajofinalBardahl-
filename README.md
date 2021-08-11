@@ -1,0 +1,1 @@
+# trabajofinalBardahl-Buenos dias buenas tardes buenas noches, mi nombre es Laureano Defelipe Piovani, trabajo en el sector de marketing/ventas en bardahl, este intenta simular la pagina de la empresa la cual trabajo y mejorar alguno de los aspectos de la misma, espero que te guste. Saludos. 
